@@ -1,1 +1,1 @@
-# GVP_AI_Hackathon_2026
+# GVP AI Hackathon 2026
